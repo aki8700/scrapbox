@@ -1,1 +1,1 @@
-https-scrapbox.io-aki8700-
+[scrapbox](https://scrapbox.io/aki8700/)
